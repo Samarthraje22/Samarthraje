@@ -18,7 +18,7 @@
 
 ### 🔗 Connect With Me
 
-- 💼 [LinkedIn](https:www.linkedin.com/in/samarth-kulat-42b028263)
+- 💼 [LinkedIn](https://www.linkedin.com/in/samarth-kulat-42b028263)
 - 📧 Email: samarthrajeit12412006@iiitsonepat.ac.in
 
 ---
